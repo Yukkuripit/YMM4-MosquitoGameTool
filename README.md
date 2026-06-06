@@ -6,6 +6,8 @@
 
 製作:ゆっくりぴっと
 https://x.com/zgCs37M1za35737
+プラグイン案:tenContΔ
+https://x.com/tenConta_8127
 
 # 概要
 
